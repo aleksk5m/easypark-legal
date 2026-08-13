@@ -66,6 +66,6 @@ This Privacy Policy may be updated when EasyPark features or data practices chan
 
 For privacy questions, account deletion requests, or other questions regarding personal information, contact:
 
-**[YOUR SUPPORT EMAIL]**
+**[Akmitrovski5@gmail.com]**
 
 **Application:** EasyPark
